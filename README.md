@@ -1,4 +1,3 @@
-### Hi there 👋
 # Hi, my League of Legends state is here 👋
 
 ## Last update time✨
